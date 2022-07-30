@@ -17,7 +17,7 @@
 
  
 ### Tecnologias que domino 100%
-<p>👾👨🏽‍💻 Estou no processo </p>
+<p>👾👨🏽‍💻 Estou no processo 👾👨🏽‍💻 </p>
  
  <br>
  
