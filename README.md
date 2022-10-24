@@ -16,11 +16,6 @@
 </div>
 
  
-### Tecnologias que domino 100%
-<p>👾👨🏽‍💻 Estou no processo 👾👨🏽‍💻 </p>
- 
- <br>
- 
 ### Perfil do Linkedin
  
 <div> 
